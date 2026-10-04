@@ -1,1 +1,4 @@
+Create a digital illustration for my heavy metal album cover in which there is a massive, gothic cathedral with a small human entity standing on its steps. The scene is covered in deep shadows that fill the whole scene, while a single beam of silver moonlight comes through a shattered window onto the figure, creating a dark and ominous mood. Broken pillars overlap one another, resting on the ground. The distant spires seem to fade into grey mist, creating depth in the picture. To increase the intensity of the scene, show a swirling whirl of storm clouds spinning overhead and deteriorating rocks falling from the decayed roof. Try to unify the image with the repeated pointed arches in the colors charcoal, grey, and silver, while there is one illuminating red rose seen near the steps where the person is standing. The oversized cathedral dominates the image, creating an asymmetrical layout.
 
+
+Vocabulary Breakdown: 
